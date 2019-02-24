@@ -1,37 +1,16 @@
-## Welcome to GitHub Pages
+# Welcome to the official Jinx website
+hello, we are your gods, WeAreJews! this website is made because i thought our last one looked gay lmao. anyways, we are trying to surpass WRDs' popularity! mwahahah!
 
-You can use the [editor on GitHub](https://github.com/WeAreJews/Jinx/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+## About Us
+e're brothers, and we are very super smart. We once attended at Harvard, but we got kicked out because we said the n word. So we decided to use Google to learn about code ourselves, and finally got the hang of it after a few days lol. Then we made some test exploits to se if they work. And of course, THEY DID! :DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDSo I guess we outsmarted our dumbass teachers XDDD So yeah, that's about it. Have fun, skids
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## About Jinx
+jinx is the obvious winner for the "world's best exploit" choosen by the Guinness Book Of World Records. this expliot updates never hahaa jk you negro it updates on the day ROCOCKS updates!!! (i guess)
+but, the sad part is, SPARE ISN'T EVEN UPDATED! So we had to use the WRD API ;((( F
 
-### Markdown
+### You should download Jinx
+yes you fucking better, or i'll come to ur house and eat ur small, juicy ass...
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/WeAreJews/Jinx/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+### DOWNLOAD HERE NOW!!!!!!!
+YES DO IT
+[CLICK ME DADDY](https://mega.nz/#!R1tH1KDT!OhN83OkTZr4Dm2N4Kn92acB2wJ5GBMq6Ui0blTvSU08)
