@@ -2,7 +2,7 @@
 hello, we are your gods, WeAreJews! this website is made because i thought our last one looked gay lmao. anyways, we are trying to surpass WRDs' popularity! mwahahah!
 
 # BEST UPDATE
-IT NO LONGER HAS WRD API (WOOHOO) IT IS NOW REPLACED WITH A X O N
+IT NO LONGER HAS WRD API (WOOHOO)
 SO YOU SHOULD DOWNLOAD NOWWWWW!!!!!!!!!!!!!
 
 ## About Us
