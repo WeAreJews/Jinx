@@ -6,11 +6,12 @@ We're brothers, and we are very super smart. We once attended at Harvard, but we
 
 ## About Jinx
 jinx is the obvious winner for the "world's best exploit" choosen by the Guinness Book Of World Records. this expliot updates never hahaa jk you negro it updates on the day ROCOCKS updates!!! (i guess)
-but, the sad part is, SPARE ISN'T EVEN UPDATED! So we had to use the WRD API ;((( F
+IT NO LONGER HAS WRD API (WOOHOO) IT IS NOW REPLACED WITH A X O N
+SO YOU SHOULD DOWNLOAD NOWWWWW!!!!!!!!!!!!!
 
 ### You should download Jinx
 yes you fucking better, or i'll come to ur house and eat ur small, juicy ass...
 
 ### DOWNLOAD HERE NOW!!!!!!!
 YES DO IT
-[CLICK ME DADDY](https://mega.nz/#!R1tH1KDT!OhN83OkTZr4Dm2N4Kn92acB2wJ5GBMq6Ui0blTvSU08)
+[CLICK ME DADDY](https://mega.nz/#!El1jjSAZ!kOTurkD_oo4tyZ5pVNkmWjY2OX0puQflXIHCixjPv6A)
