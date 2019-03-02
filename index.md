@@ -1,7 +1,7 @@
 # Welcome to the official Jinx website
 hello, we are your gods, WeAreJews! this website is made because i thought our last one looked gay lmao. anyways, we are trying to surpass WRDs' popularity! mwahahah!
 
-### BEST UPDATE
+# BEST UPDATE
 IT NO LONGER HAS WRD API (WOOHOO) IT IS NOW REPLACED WITH A X O N
 SO YOU SHOULD DOWNLOAD NOWWWWW!!!!!!!!!!!!!
 
