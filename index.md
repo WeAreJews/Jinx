@@ -6,6 +6,8 @@ We're brothers, and we are very super smart. We once attended at Harvard, but we
 
 ## About Jinx
 jinx is the obvious winner for the "world's best exploit" choosen by the Guinness Book Of World Records. this expliot updates never hahaa jk you negro it updates on the day ROCOCKS updates!!! (i guess)
+
+## BEST UPDATE
 IT NO LONGER HAS WRD API (WOOHOO) IT IS NOW REPLACED WITH A X O N
 SO YOU SHOULD DOWNLOAD NOWWWWW!!!!!!!!!!!!!
 
